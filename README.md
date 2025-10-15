@@ -41,4 +41,4 @@ I've worked on several projects involving:
 ---
 
 📫 **Let's Connect**
-- [LinkedIn](https://linkedin.com/in/timanders)  
+- [LinkedIn](https://linkedin.com/in/tim-anders)  
